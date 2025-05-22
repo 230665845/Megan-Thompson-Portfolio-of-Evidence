@@ -10,6 +10,7 @@ I had a presentation and a quiz that explored career planning, goal setting and 
 ![career development](https://github.com/user-attachments/assets/50141a9f-7209-4b67-9a68-758748ad72d2)
 
 ## Reflection
+
 S: At the beginning of the work readiness program, I was uncertain about what I wanted to do after graduating.
 T: I needed to identify clear career goals and create a long-term plan aligned with my strengths and interests.
 A: I explored various career pathways within ICT and used goal-setting techniques taught in the course to map out a five-year plan.
@@ -49,6 +50,7 @@ This exercise included guidelines and best practices on writing a professional C
 
 
 ## Reflection 
+
 S: Before the training, my CV lacked structure and did not fully showcase my abilities and achievements.
 T: I needed to create a professional CV that would make a strong first impression to potential employers.
 A: I followed a structured CV-writing guide, attended lectures on formatting and content, and applied feedback to improve my document.
