@@ -28,7 +28,8 @@ I had a presentation and a quiz that explored career planning, goal setting and 
 
 I did an assessment and learning module used to identify my core stengths, interests,  and transferable skills.
 
-![skills and interests](https://github.com/user-attachments/assets/3c550b6e-e05d-4d2b-a57b- )
+![skills and interests](https://github.com/user-attachments/assets/b70bd215-eafa-4765-92a3-4673a5db9519)
+
 
 
 ## Reflection
