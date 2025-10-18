@@ -121,6 +121,36 @@ This exercise was focused on preparing for job interviews, including common ques
 
 ---
 
+# Professional Networking
+## Evidence
+This exercise focused on building connections in the industry, both online and in-person, and using networking to support career goals.
+
+!<img width="442" height="451" alt="Screenshot 2025-10-18 214546" src="https://github.com/user-attachments/assets/60745ec4-08df-4f8f-8590-c255f077b205" />
+
+## Reflection 
+
+**S:** I used to think networking was just about handing out business cards or adding people on LinkedIn without really knowing how to connect meaningfully.
+**T:** I wanted to understand how to network in a way that felt natural and actually helped me grow professionally.
+**A:** I practiced writing networking messages, learned how to approach professionals at events, and worked on creating a strong LinkedIn profile.
+**R:** I’ve become more comfortable introducing myself and building professional relationships.
+
+---
+
+# Workplace Etiquette
+## Evidence 
+This module covered appropriate behavior, expectations, and standards in a professional environment.
+
+!<img width="517" height="453" alt="Screenshot 2025-10-18 214519" src="https://github.com/user-attachments/assets/10554665-759a-4979-9553-fa50aa6904dd" />
+
+## Reflection
+
+**S:** Before this exercise, I wasn’t entirely sure what was expected in a professional workplace, especially when it came to unspoken rules like body language, time management, or office etiquette.
+**T:** I needed to learn how to present myself professionally and adapt to different workplace cultures.
+**A:** I worked through real-life scenarios and reflected on what professional behavior looks like in different situations.
+**R:** I now feel more prepared to handle professional environments confidently.
+
+
+
 ## Connection
 Career development, skills and interest and Personality Assessment all worked together to help me understand what career paths align with my stregnths.Understanding myself made my career planning and job applications more intentional and focused.
 
