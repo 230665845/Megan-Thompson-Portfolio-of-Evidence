@@ -143,6 +143,7 @@ This exercise focused on building connections in the industry, both online and i
 # Workplace Etiquette
 ## Evidence 
 This module covered appropriate behavior, expectations, and standards in a professional environment.
+
 <img width="442" height="451" alt="workplace etiquette" src="https://github.com/user-attachments/assets/a91ca9b4-4e7e-4d48-bf0f-4ad6287d7802" />
 
 
