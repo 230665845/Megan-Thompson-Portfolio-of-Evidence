@@ -121,6 +121,27 @@ This exercise was focused on preparing for job interviews, including common ques
 
 ---
 
+# Mock Interview
+## Evidence 
+
+This exercise involved participating in a recorded mock interview to practice answering common interview questions and receiving feedback.
+
+
+<img width="1382" height="554" alt="mock interview" src="https://github.com/user-attachments/assets/9f144bd3-2ad3-4685-b1e7-72af1494960d" />
+
+## Reflection
+
+**S:**  I was nervous going into the mock interview because I wasn’t sure how I’d come across on camera or if I’d be able to answer questions clearly.
+
+**T:** I needed to practice structuring my responses, managing my nerves, and making a good impression in a simulated interview setting.
+
+**A:** I prepared answers using the STAR method, focused on body language and tone, and recorded a full mock interview. I then reviewed feedback to see what I could improve.
+
+**R:** Doing the mock interview really boosted my confidence. It helped me get used to speaking about my skills and experiences in a professional way.
+
+---
+
+
 # Professional Networking
 ## Evidence
 This exercise focused on building connections in the industry, both online and in-person, and using networking to support career goals.
