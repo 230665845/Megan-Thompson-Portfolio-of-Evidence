@@ -130,8 +130,11 @@ This exercise focused on building connections in the industry, both online and i
 ## Reflection 
 
 **S:** I used to think networking was just about handing out business cards or adding people on LinkedIn without really knowing how to connect meaningfully.
+
 **T:** I wanted to understand how to network in a way that felt natural and actually helped me grow professionally.
+
 **A:** I practiced writing networking messages, learned how to approach professionals at events, and worked on creating a strong LinkedIn profile.
+
 **R:** I’ve become more comfortable introducing myself and building professional relationships.
 
 ---
@@ -145,15 +148,22 @@ This module covered appropriate behavior, expectations, and standards in a profe
 ## Reflection
 
 **S:** Before this exercise, I wasn’t entirely sure what was expected in a professional workplace, especially when it came to unspoken rules like body language, time management, or office etiquette.
+
 **T:** I needed to learn how to present myself professionally and adapt to different workplace cultures.
+
 **A:** I worked through real-life scenarios and reflected on what professional behavior looks like in different situations.
+
 **R:** I now feel more prepared to handle professional environments confidently.
 
 
 
 ## Connection
-Career development, skills and interest and Personality Assessment all worked together to help me understand what career paths align with my stregnths.Understanding myself made my career planning and job applications more intentional and focused.
+Career Development, Skills and Interests, and Personality Assessment all worked together to help me understand what career paths align with my strengths. Understanding myself made my career planning and job applications more intentional and focused.
 
-The knowledge gained in Interview SKills and Business Communication was directly applied in the Mock Interview Video and while crafting professional responses during the job search. These artefacts  moved my learning concepts to action.
+The knowledge gained in Interview Skills and Business Communication was directly applied in the Mock Interview Video and while crafting professional responses during the job search. These artefacts moved my learning concepts to action.
 
-Whether it was writing my CV or preparing for a mock interview, my strong communication skills were a constant theme. This was reinforced in the Business Communication and Networking modules.
+Workplace Etiquette helped tie everything together by showing how to behave professionally in real work environments, it is something that supports all the other skills I’ve been building. It gave me the confidence to step into new spaces with the right mindset and awareness.
+
+Professional Networking added another important layer by teaching me how to build real industry connections. Whether it’s reaching out on LinkedIn or speaking to someone at an event, I now feel more confident starting conversations that can support my career growth.
+
+Overall, each module has built on the last, helping me feel more prepared, connected, and confident about moving into the workforce.
