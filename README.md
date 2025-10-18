@@ -125,7 +125,8 @@ This exercise was focused on preparing for job interviews, including common ques
 ## Evidence
 This exercise focused on building connections in the industry, both online and in-person, and using networking to support career goals.
 
-!<img width="442" height="451" alt="Screenshot 2025-10-18 214546" src="https://github.com/user-attachments/assets/60745ec4-08df-4f8f-8590-c255f077b205" />
+<img width="517" height="453" alt="professional networking" src="https://github.com/user-attachments/assets/99c3d8b6-ca8f-4a03-a5f6-ffed354a6622" />
+
 
 ## Reflection 
 
@@ -142,8 +143,8 @@ This exercise focused on building connections in the industry, both online and i
 # Workplace Etiquette
 ## Evidence 
 This module covered appropriate behavior, expectations, and standards in a professional environment.
+<img width="442" height="451" alt="workplace etiquette" src="https://github.com/user-attachments/assets/a91ca9b4-4e7e-4d48-bf0f-4ad6287d7802" />
 
-!<img width="517" height="453" alt="Screenshot 2025-10-18 214519" src="https://github.com/user-attachments/assets/10554665-759a-4979-9553-fa50aa6904dd" />
 
 ## Reflection
 
